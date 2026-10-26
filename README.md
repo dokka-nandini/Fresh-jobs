@@ -28,4 +28,4 @@ each link carries 4 jobs
 
 
 pls see linkedin urgent
-ok i will apply first 4 bye gn
+ok i will apply first 4 I saw i learn.net also ok any material or something is there send i will learn bye gn
