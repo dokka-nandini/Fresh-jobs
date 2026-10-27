@@ -32,5 +32,26 @@ pls see linkedin urgent
 ok i will apply first 4 I saw i learn.net also ok any material or something is there send i will learn bye gn
 
 
-health is not good 
-more 8 applying anything
+I am applying ok tc nanna pls 7 i will pray take leave go and take rest 
+Official application links
+1. Charles Schwab — Java Developer
+https://www.schwabjobs.com/⁠�
+Search: Java Developer or Associate Software Development Engineer
+2. Barclays — Full Stack Developer
+https://search.jobs.barclays/⁠�
+Search: Full Stack Developer or Java Developer
+3. Barclays — Application Developer
+https://search.jobs.barclays/⁠�
+Search: Application Developer
+4. Honeywell — Software Engineer I
+https://careers.honeywell.com/⁠�
+Search: Software Engineer I
+5. PwC — Full Stack Python
+https://www.pwc.in/careers.html⁠�
+Search: Full Stack Python
+6. Moody's — .NET Developer
+https://careers.moodys.com/⁠�
+Search: .NET Developer
+7. WSP — AI Engineer
+https://www.wsp.com/en-gl/careers⁠�
+Search: AI Engineer
