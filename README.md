@@ -34,4 +34,4 @@ ok i will apply first 4 I saw i learn.net also ok any material or something is t
 
 
 
-Inka alagey undhi
+avuna medicine thisuko pls thinnu don't think pray i will pray eu tc 87 
