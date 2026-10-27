@@ -55,3 +55,4 @@ Search: .NET Developer
 7. WSP — AI Engineer
 https://www.wsp.com/en-gl/careers⁠�
 Search: AI Engineer
+you have time apply this ok tmr i will come bye tc 87
