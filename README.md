@@ -32,6 +32,5 @@ pls see linkedin urgent
 ok i will apply first 4 I saw i learn.net also ok any material or something is there send i will learn bye gn
 
 
-
-
-avuna medicine thisuko pls thinnu don't think pray i will pray eu tc 87 
+health is not good 
+more 8 applying anything
